@@ -1,1 +1,0 @@
-# Qu-cKh-i_lab3
